@@ -3,7 +3,7 @@
 ## Contact Information
 - **Name:** Darpan Thakur
 - **Phone:** 8459488744
-- **Email:** darpanthakur1028@gmail.com
+- **Email:** darpanthakur1002@gmail.com
 
 ---
 
@@ -45,8 +45,7 @@ Motivated and enthusiastic Direct Second Year Diploma student with a strong inte
 
 ---
 
-## Declaration
-I hereby declare that the information provided above is true to the best of my knowledge and belief.
+
 
 ---
 
