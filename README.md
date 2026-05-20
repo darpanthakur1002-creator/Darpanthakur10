@@ -1,4 +1,4 @@
-# Darpan Thakur - Resume
+#name - Darpan Thakur 
 
 ## Contact Information
 - **Name:** Darpan Thakur
